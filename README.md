@@ -1,1 +1,1 @@
-![alt text](https://gdm-catalog-fmapi-prod.imgix.net/ProductLogo/9c980e99-7289-4844-9017-ebf9b2ec4708.png?auto=format&ixlib=react-9.0.3&w=500)
+![alt text](https://entrepreneur-360.com/wp-content/uploads/2021/02/coursera-2-768x434.png)
